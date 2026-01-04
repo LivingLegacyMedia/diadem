@@ -270,7 +270,7 @@ Draven Kane had an artifact like his. But Draven had corrupted it somehow. Found
 
 And now the Hollow was spreading. Town by town. Trade by trade. Offering people exactly what they thought they wanted, then hollowing them out from within. And when enough people in a city had been turned, Draven's army simply marched in. No siege needed. No battle. The city divided against itself could not stand.
 
-*It's brilliant,* Cassian realized with horror. *And it works because they choose it for themselves. They agree to the terms. How do you fight an army that people surrender to wilingly?*
+*It's brilliant,* Cassian realized with horror. *And it works because they choose it for themselves. They agree to the terms. How do you fight an army that people surrender to willingly?*
 
 A commotion outside interrupted his thoughts.
 

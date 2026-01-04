@@ -1,4 +1,4 @@
-# Chapter 10
+# Chapter 10: Empty Shell
 
 They reached the ridge as dawn broke gray and cold over the valley. Torin was barely conscious, leaning heavily on Mira. Cassian's hands still shook from the connection he'd touched, the network he'd felt watching him.
 

@@ -1,4 +1,4 @@
-# Chapter 9
+# Chapter 9: The Network
 
 The infiltration was supposed to be simple.
 

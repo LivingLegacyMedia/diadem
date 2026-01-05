@@ -408,7 +408,7 @@ Three months later.
 
 Cassian had learned much about the Coin of Waters.
 
-He kept it in a secured vault beneath the palace, wrapped in enchanted cloth that muted its bond to Draven. Through careful experimentation, he'd discovered that distance mattered enormously—beyond fifty miles, Draven's access to the coin's power became noticeably weaker. Beyond a hundred, barely functional.
+He kept it in a secured vault beneath the palace, wrapped in an oiled cloth that muted its bond to Draven. Through careful experimentation, he'd discovered that distance mattered enormously—beyond fifty miles, Draven's access to the coin's power became noticeably weaker. Beyond a hundred, barely functional.
 
 The King's scouts reported that Draven had discovered the loss within a day of retreating—the moment he'd tried to use it for healing and found the bond stretched thin and unresponsive. His fury had been catastrophic. Three emissaries executed for "failing to secure the battlefield." Search parties dispatched across the kingdom. Massive rewards offered for information.
 

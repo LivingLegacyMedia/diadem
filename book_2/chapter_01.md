@@ -126,73 +126,141 @@ Cassian pressed both coins against Lyssa's skin. "I'm doing this now."
 
 He entered the gray space. Deeper than before. Past perception, past thought, into the realm where tethers lived. Lyssa's connection to Draven blazed like a golden thread—thick, ancient, welded into place by hundreds of transactions.
 
-Cassian reached for it.
+Cassian reached for the tether and spoke: "I offer to take this woman's burden. Transfer her tether to me. I'll hold it in her place."
+
+The Law considered. Burden for a burden.
+
+It accepted.
 
 The hollowness hit him like drowning.
 
-Cold. Vast. Empty. It wasn't just Lyssa's void—it was everyone she'd ever recruited. Two dozen hollow souls, their emptiness compressed into one tether. Cassian gasped, choking on nothingness, feeling it seep into his bones.
+Cold. Vast. Empty. It wasn't just Lyssa's void—it was everyone she'd ever recruited. Two dozen hollow souls, their emptiness compressed into one tether, and now it was all flooding into *him*. 
 
-Too much. Too heavy.
+In the past, he'd held tethers for minutes. Long enough for an emissary to petition the Law, to reverse their trade, to reclaim their humanity. He'd always pulled back before the emptiness took root.
 
-He couldn't do this.
+But he was so *tired*.
 
-But Marcus was dying. Kira was bleeding. And Draven was—
+Three months of this. Fifteen emissaries. Barely any sleep. The hollowness didn't just touch him this time—it *claimed* him.
 
-Draven was *there*.
+Cassian gasped, choking on nothingness. His sense of self began to dissolve. Thoughts scattered like ash. Emotions flattened. Everything that made him *him* started draining away through the tether.
 
-Not physically. But through the network. A presence riding the tether, using Lyssa as a conduit. Cassian felt him like ice water down his spine.
+Too much. Too heavy. Too tired to fight it.
 
-And then Draven *spoke*.
+And then Draven was *there*.
 
-Not words. Sensations. Concepts imprinted directly onto consciousness through the golden thread:
+Not physically. But through the network, riding the connection Cassian had just taken onto himself. A presence like ice water down his spine.
 
-**FUTILITY. YOU CANNOT WIN. EVERY EMISSARY YOU SEVER, I FEEL IT. EVERY TETHER YOU TAKE, IT HOLLOWS YOU FURTHER. YOU'RE BECOMING WHAT YOU HATE. BECOMING LIKE ME. BECOMING HOLLOW.**
+Draven *spoke* directly into his consciousness:
 
-Cassian gritted his teeth. Pulled harder on the tether.
+**NINE HOLLOW DIED IN YOUR LAST MISSION. FIVE THE ONE BEFORE THAT. HOW MANY MORE WILL YOU SACRIFICE, CASSIAN? HOW MANY ACCEPTABLE LOSSES BEFORE YOU ADMIT TO YOURSELF THAT YOU'RE NO DIFFERENT FROM ME?**
 
-**YOU'LL BREAK BEFORE I DO. YOU'LL DRAIN YOURSELF TO DEATH, OR LOSE YOUR HUMANITY TRYING. GIVE UP, CASSIAN. GIVE ME THE COIN OF HEADS AND I'LL LET YOUR PEOPLE LIVE.**
+Cassian tried to respond, tried to pull back from the tether, but the hollowness had him. He was sinking.
 
-"Never."
+**I SACRIFICE PEOPLE FOR MY VISION OF ORDER. YOU SACRIFICE THEM FOR YOUR VISION OF FREEDOM. THE ONLY DIFFERENCE IS THAT I'M HONEST ABOUT WHAT I AM.**
 
-Cassian *yanked*.
+"No..." The word barely formed. Everything was going dark. Cold. Empty.
 
-The tether tore free from Draven's network. Cassian's scream matched Lyssa's. The hollowness flooded into him—gallons of emptiness, drowning thought, drowning self, drowning *being*.
+**AND HOW MANY DIE BEFORE THEY GET THAT CHOICE? YOU DON'T CARE. AS LONG AS THE MISSION SUCCEEDS, AS LONG AS YOU FREE MORE THAN YOU KILL, YOU TELL YOURSELF IT'S JUSTIFIED. THAT'S EXACTLY WHAT I DO.**
 
-He was hollow.
+Cassian couldn't answer. Couldn't think. The tether was pulling him down, drowning him in accumulated emptiness from two dozen souls. He needed to release it—needed to disconnect before it consumed him completely.
 
-He was nothing.
+But he couldn't find the way back.
 
-He was—
+He was trapped in the gray space, dissolving into nothing.
 
-One of the Hollow below convulsed. A man, young, recently recruited. The severance had broken his connection mid-drain. He thrashed once, twice.
+---
 
-Then stopped moving.
+In the physical world, Cassian's body went rigid. His eyes rolled back. A low, terrible sound emerged from his throat—not a scream, but something worse. The sound of a person becoming hollow.
 
-Dead. The Law's price for interrupted transactions.
+"Cassian!" Torin grabbed him, shook him. Nothing. "Cassian, let go! Release the tether!"
 
-Cassian felt it through the Coin of Seeds—life snuffed out, payment extracted. The knowledge should have devastated him.
+But Cassian couldn't hear him. Couldn't respond.
 
-But he felt nothing.
+Lyssa collapsed, gasping. Free. The tether had transferred completely to Cassian. She had minutes—maybe less—to petition the Law for restoration before the tether sought her out again. But she was staring at Cassian with something like horror.
 
-Because part of him had gone hollow taking Lyssa's tether.
+"He's stuck," she whispered. "Oh gods, he's stuck in the void."
 
-"Cassian!" Torin's hands on his shoulders, shaking him. "Cassian, we have to move! Now!"
+"What?" Torin's hands were still on Cassian's shoulders.
 
-Guards flooding the room. Kira on the ground, not moving. Marcus bleeding out. The other volunteers screaming.
+"The tether's too heavy. He can't release it. It's drowning him." Lyssa's voice was shaking—emotion, real emotion, flooding back as her connection to Draven severed. "If he stays much longer, he'll be gone. Completely hollow. Forever."
 
-Cassian stood on legs that barely functioned. His hand—the one holding the coins—had stopped shaking. Because there was nothing left inside him to tremble.
+Guards were flooding the room. Crossbow bolts slamming into the walls. Kira was down. Marcus was screaming, clutching his shoulder.
 
-"Go," he managed. "Out. Now."
+Torin made a decision.
+
+He pressed his hand against Cassian's chest—against the Coin of Seeds that hung there. Months ago, Cassian had delegated him partial authority over the coin. Enough to manage the volunteer network. Enough to help with rescues.
+
+Maybe enough to enter the gray space.
+
+"I'm coming for you," Torin muttered, and pushed his awareness through the coin.
+
+The gray space opened.
+
+Torin had never fully entered it before—only glimpsed it through Cassian's guidance. But now he plunged in, following the thread of connection between them.
+
+He found Cassian sinking into an ocean of emptiness. The tether to Lyssa's network wrapped around him like chains, pulling him down into accumulated void. Cassian's presence was barely there—a flicker, fading fast.
+
+"Cassian!" Torin grabbed for him through the connection. "You have to let go!"
+
+Cassian's thoughts were barely coherent: *Can't... too heavy... can't release...*
+
+"Then I'll help you carry it." Torin reached for the tether. "Share the burden. Split it between us."
+
+*No... will hollow you too...*
+
+"Better both of us hollow for a minute than you gone forever!" Torin pulled on the connection, using his body to redistribute the weight of emptiness.
+
+The tether accepted Torin. Two bearers instead of one.
+
+The tether split.
+
+Hollowness flooded into Torin. Cold. Terrible. Empty. But only half of what Cassian had been drowning in. And Torin was rested. Fresh. He could hold this.
+
+"Now!" Torin shouted through the gray space. "While you can--pull back!"
+
+Cassian felt the weight halve. Felt Torin bearing half the emptiness. It was just enough. He found his sense of self—grabbed onto it like a drowning man finding rope—and pulled.
+
+They both yanked back from the tether at once.
+
+The connection released them, and immediately sought its original host. The tether snapped back toward Lyssa—
+
+But she was curled on the floor, sobbing. Real tears. Real grief. Her humanity flooding back as she petitioned the Law: "I overpaid. Years of service. Hundreds recruited. I demand restoration. I demand my feelings back. I demand—"
+
+The Law heard her. Recognized the overpayment. Granted her petition.
+
+The tether found no purchase. It dissolved, contract broken, burden released.
+
+Lyssa gasped, and started screaming—not in pain, but in anguish. Memories of everyone she'd damned flooding back. Guilt. Horror. Humanity.
+
+Cassian and Torin both crashed back into their bodies at the same moment.
+
+Cassian sucked in air like he'd been drowning. Everything hurt. The hollowness clung to him, residue from carrying that terrible weight, but he was *back*. He could feel. Think. Be.
+
+"Move!" Torin was hauling him to his feet. "We have to move! Now!"
+
+The room was chaos. How long had they been in the gray space? Seconds? Minutes? Kira was on the ground, not moving. Marcus was down, blood spreading. Two more volunteers were fighting three guards near the door.
+
+And more guards were coming up the stairs.
+
+"Go," Cassian managed. His legs barely held him. "Out. Now."
 
 They ran.
 
-The stairwell—chaos. Guards coming up, team going down. Cassian moved on instinct, blade finding throats, ribs, soft bellies. Gray space flickered, unreliable. His perception was damaged. Hollowness made everything distant, numb, unreal.
+But the delay had cost them. While Cassian had been trapped in the gray space—while Torin had abandoned the fight to pull him back—the guards had overrun the third floor. 
 
-Someone—one of the volunteers—screamed behind him. Cut off mid-cry. Cassian didn't turn. Couldn't. Survival meant forward momentum.
+The stairwell was a killing floor. Guards coming up, team going down, and Cassian barely functional. He moved on instinct, blade finding throats, ribs, soft bellies. But he was slow. Clumsy. The residual hollowness made everything distant.
 
-Second floor. The bound guards were gone, freed by their comrades. More fighting. Torin moved like a demon, blade work brutal and efficient. But Marcus wasn't with them anymore. Left on the third floor, bleeding.
+Maven—young, restored just two months ago—took a crossbow bolt meant for Cassian. Went down screaming. Cassian stumbled past him. Couldn't stop. Couldn't help.
 
-First floor. The Hollow still lay on their cots, but some were convulsing now. The severance had shattered their connections. Some would survive. Some wouldn't. The Law didn't care which.
+"Maven!" One of the other volunteers tried to turn back.
+
+"Keep moving!" Torin's voice, hard as iron. He grabbed the volunteer, shoved him forward. "He's already gone!"
+
+Second floor. The bound guards were gone, freed by their comrades. More fighting. Torin moved like a demon, blade work brutal and efficient. But Marcus wasn't with them anymore. Left on the third floor, bleeding. And Kira—Cassian saw her body in the hallway as they passed. Skull caved in. Dead before they'd even escaped the gray space.
+
+First floor. The Hollow still lay on their cots, but some were convulsing. Not from the severance itself—Lyssa had successfully petitioned for restoration, the tether dissolved cleanly. But the chaos, the fighting, the screaming had disrupted others. Some of Lyssa's recruits connected to secondary emissaries, other networks. The violence had interrupted their carefully maintained drains.
+
+The Law extracted its price. Three of them died where they lay, contracts broken before they could accept freedom.
 
 Cassian stumbled past them toward the exit.
 
@@ -208,7 +276,7 @@ Cassian rose on shaking legs.
 
 "Move!" Torin hauled him toward the door. 
 
-They burst into the night. Four of them. Started with seven. Marcus dead. Kira dead. Another volunteer—Cassian couldn't remember his name—gone.
+They burst into the night. Three of them. Started with seven. Marcus dead on the third floor. Kira dead in the hallway. Maven dead in the stairwell. Another volunteer—Cassian thought his name was Eron—had simply vanished in the chaos.
 
 "Safe house," Torin gasped. "North district. Can you—"
 
@@ -238,15 +306,15 @@ Wrong. Not daylight. Afternoon. The angle was all wrong. Hours had passed. More 
 
 Cassian tried to sit up. His body refused. Everything ached. His hands—he could feel them now, pain returning as the hollowness receded—were bandaged. When had he hurt them?
 
-"Easy." Torin's voice. The severer sat in a chair beside the bed, expression neutral. "You've been out sixteen hours."
+"Easy." Torin's voice. He sat in a chair beside the bed, expression neutral. "You've been out sixteen hours."
 
 Cassian tried to focus. The room swam. "Lyssa?"
 
-"Alive. Eighteen of the twenty-four Hollow survived. Six died when their tethers broke." Torin's tone was clinical. "Marcus, Kira, and Maven didn't make it out. Nine total casualties."
+"Restored. Successfully petitioned the Law while you were..." Torin paused. "Trapped. Eighteen of her twenty-four recruits survived the chaos." His tone went clinical. "Marcus, Kira, Maven, and Eron didn't make it out. Three more Hollow died during the fighting—secondary network disruptions, not Lyssa's people. Ten casualties."
 
-Nine dead. The number sat in Cassian's chest like a stone.
+Ten dead. The number sat in Cassian's chest like a stone.
 
-"We freed over a thousand—"
+"But we freed over a thousand—"
 
 "Don't."
 
@@ -254,15 +322,25 @@ The voice came from the doorway. It was Perin.
 
 The former Emissary stood there, face twisted with something between rage and grief. His restored conscience, empathy, humanity, all showed in every line of his expression. Behind him, barely visible in the hallway, Cassian could make out other volunteers. Listening.
 
-"Don't you dare calculate the value," Perin said, voice shaking. "Don't weigh eighteen survivors against nine dead and tell yourself it was worth it." He stepped into the room. "Maven was nineteen, Cassian. Nineteen. I restored him myself two months ago. He came to me crying because he finally felt something again after years of emptiness. He had a sister. A mother. Plans."
+"Don't you dare justify freeing more than we killed," Perin said, voice shaking. "Don't weigh eighteen restored against ten dead and tell yourself it was worth it." He stepped into the room. "Maven was nineteen years old, Cassian. Nineteen. I restored him myself two months ago. He came to me crying because he finally felt something again after years of emptiness. He had a sister. A mother. A life to go back to."
 
 "Perin—"
 
-"You went hollow last night." Perin's hands clenched into fists. "Torin and I were there. We saw what happened to you. Completely hollow. You couldn't feel anything. Not fear, not pain, not guilt. You became exactly what we're fighting against."
+"You collapsed on us." Perin's hands clenched into fists. "Torin told me what happened. You took on too much. The tether was drowning you. You were becoming completely hollow. If Torin hadn't risked his own humanity to pull you back, you'd be gone. Forever."
 
-"But I came back," Cassian said.
+"But I did come back," Cassian said weakly.
 
-"This time." Torin's voice was quiet. Matter-of-fact. "But we can't predict what will happen in the future. Each severance takes more. Eventually you won't come back."
+"Because of Torin!" Perin's voice cracked. "Because he dragged you back, and because many of us died protecting you while you nearly died yourself! Maven took a bolt to the chest while you were too hollow to defend yourself."
+
+The words hit like a physical blow.
+
+"And while while Torin was saving you, the guards overran our position. Four people died because you couldn't control the tether. Because you were too exhausted, too reckless, too *desperate* to realize you couldn't handle it."
+
+"I didn't have a choice."
+
+"There's always a choice!" Perin took a shaking breath. "You could have waited. Rested. Brought more people. But no—you charged in anyway because you can't stop. Won't stop. And people die for it."
+
+Torin's voice cut in, quiet but firm. "He's not wrong, Cassian. Each severance takes more from you. Eventually you won't come back at all. You'll stay trapped in that void. Become one more hollow thing in Draven's collection."
 
 Cassian met Perin's eyes. Saw the desperation there. The fear. "What do you want me to do? Stop? Let Draven enslave hundreds more?"
 
@@ -274,21 +352,35 @@ He moved closer, and Cassian could see tears at the corners of his eyes.
 
 "I don't have a choice."
 
-"You always have a choice. That's what you taught me." Perin's voice dropped. "Last night, Draven was tracking you. He knew you were coming. He *wanted* you there. This was a trap, and you walked right into it. He's learning how you operate, Cassian. And the next trap will be worse."
+"You always have a choice. That's what you taught me." Perin's voice dropped. "Look at what happened last night. A trap. Draven knew your pattern—fifteen raids in three months, always the same approach. He stationed elite guards at Lyssa's warehouse. Waited for you to come. And you walked right into it."
+
+"Then I'll rest more," Cassian said. "I'll be more careful. We'll—"
+
+"It's not about rest!" Perin's frustration boiled over. "Yes, you were exhausted. Yes, that made it worse. But even if you'd been fresh, it would still have been a bloodbath. Don't you see? Draven's adapting. His emissaries are stronger now. Better protected. And his armies rebuild faster than you can tear them down."
+
+Torin's voice was quiet. "He's recruited forty new emissaries in the last month. You've freed fifteen total in three months. The math doesn't work."
+
+"That's why we've been moving quickly," Cassian said. "If we slow down, if we rest between missions, he'll—"
+
+"He's already outpacing you," Torin interrupted. "You're sprinting toward exhaustion and he's still winning. That's the problem. Not your rest schedule. The entire approach."
+
+Cassian stared at them both. "So what? I give up? Let him win?"
+
+"No," Perin said quietly. "You find a different way. One that doesn't require you to hollow yourself to death while he rebuilds his network faster than you can dismantle it. One that doesn't turn every mission into a trap where good people die."
 
 Cassian had no answer for that.
 
 Perin looked at Torin, then back at Cassian. "I've talked to the others. The volunteers. The people you've restored. And we're agreed." He took a breath. "If you keep hunting Emissaries this way—if you keep sacrificing your humanity and our people for diminishing returns—we're done. All of us."
 
-The words hit like a physical blow.
+Cassian felt the words like a punch to the chest.
 
 "You're abandoning me?"
 
-"No. We're refusing to help you die." Perin's voice softened. "Find another way. Find a way that doesn't cost your humanity. Do that, and we'll follow you anywhere. But this?" He gestured at Cassian's bandaged hands, his hollow-eyed exhaustion. "We won't be part of this anymore."
+"No. We're refusing to help you die." Perin's voice softened. "Find another way. A winning strategy. One that that doesn't cost you your humanity, and us our lives. Do that, and we'll follow you anywhere. But this?" He gestured at Cassian's bandaged hands, his hollow-eyed exhaustion. "We won't be part of this anymore."
 
 He turned and walked out. Footsteps echoed in the hallway—the other volunteers following.
 
-Torin stood. "For what it's worth, he's right. The cost-benefit analysis is unsustainable." He paused at the door. "You're a good man, Cassian. But good men can make bad decisions when they're desperate. Don't let desperation turn you into what you hate."
+Torin stood. "For what it's worth, he's right. This is unsustainable." He paused at the door. "You're a good man, Cassian. But good men can make bad decisions when they're desperate. Don't let desperation turn you into what you hate."
 
 Then he was gone too.
 
@@ -296,7 +388,7 @@ Cassian sat in the empty room, bandaged hands in his lap. Nine dead. Over a thou
 
 But all he could feel was the hollowness still clinging to his bones, whispering in Draven's voice:
 
-*Becoming like me.*
+*You and I are more alike than you want to admit.*
 
 Maybe Lyssa had been right after all.
 
